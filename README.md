@@ -1,1 +1,1 @@
-# ghostbutter-com
+# Ghostbutter.com
